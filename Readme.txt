@@ -1,0 +1,1 @@
+This is not a real virus, this is just a fun program. Hope you will like it.
